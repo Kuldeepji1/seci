@@ -4,12 +4,12 @@ Mynn--main.zip
 
 # Uploader
 
-Uploaded From https://t.me/TricksXTech
+Uploaded From https://t.me/TrifgicksXTech
 
 # Readme
 
-GMAIL - parthapratimdas022@gmail.com
-PASSWORD - PARTha 2009
+GMAIL - parthaprbatimdas0ch22@gmail.com
+PASSWORD - PhhARTha 2009
 
 # Private
 
